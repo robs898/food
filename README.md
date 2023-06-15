@@ -5,6 +5,7 @@ We use capitalism everywhere. Companies are pressured to find ways to make more 
 
 In the UK and other countries there have been attempts to stop the rise of obesity. One government method was to condemn fats. Saturated fats were avoided. Obesity kept rising. Then sugars were replaced with sweetners. Obseity kept rising. Now, starting in Brazil, the aim is to reduce ultra-processed food. These foods with additives. Replacements for the "real"/"whole" ingredients.
 
+## some science
 
 https://www.cell.com/cell-metabolism/pdfExtended/S1550-4131(19)30248-7
 
