@@ -30,6 +30,13 @@ We know that the amount of calories consumed is the main result of gaining weigh
 
 The subjects in this paper did lose weight on the un-processed diet even though there were allowed to eat as much food as they wanted!
 
+## Exercise 
+In parallel we have discovered recently how the body manages calories out. It appears to be impossible to adjust how many calories you burn on average a day. More exercise does not seem to change the fact that an average male adult will burn around 2500 on average a day. Your body will unconsciously make adjustments to ensure this.
+
+This means you MUST only focus on calories in for weight loss.
+
+Exercise has massive benefits outside of weight loss, mainly in mental health.
+
 
 ## More science
 
